@@ -1,0 +1,1 @@
+# CiftSayiBulucu-Garanti-Patika
